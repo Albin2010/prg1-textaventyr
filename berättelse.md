@@ -1,0 +1,1 @@
+ John daly ska ha golftävling. Spelare ska göra val som ger olika utfall och slut. 
